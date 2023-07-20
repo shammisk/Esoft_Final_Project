@@ -9,8 +9,9 @@ enhanced my knowledge and skills in database management and C# programming, prov
 for future professional endeavors.
 
 
-![Screenshot (235)](https://github.com/Shammigithub/Esoft_Final_Project/assets/99946678/86e6a1ea-19d6-4b96-af69-984787e15c32)
+![Screenshot (235)](https://github.com/Shammigithub/Esoft_Final_Project/assets/99946678/ef0aae90-cc29-4fbe-b546-a4e744bd213c)
+
+![Screenshot (236)](https://github.com/Shammigithub/Esoft_Final_Project/assets/99946678/59d03203-d05d-4f52-964e-128ede40feba)
 
 
-![Screenshot (236)](https://github.com/Shammigithub/Esoft_Final_Project/assets/99946678/eced93d6-ec34-4b92-a704-6c6dee455b4a)
 
